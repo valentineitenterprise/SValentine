@@ -8,4 +8,4 @@ I am graduate of Western Dakota Technical College earning an Associate's degree 
 Looking for Entry-Level SOC Analyst & IT Support positions.
 
 ---
-*“When in doubt ALWAYS go back to the basics if you can't solve it then nuke it!”*
+*“When in doubt, ALWAYS go back to the basics. If you can't solve it, then NUKE it!”*
